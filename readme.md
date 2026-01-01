@@ -4,6 +4,6 @@
 
 - Tetsu
 - Pei Yi Wu
-- Tim
+- Ti
 - qq0487899
 - cindy
